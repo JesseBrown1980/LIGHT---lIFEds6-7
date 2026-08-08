@@ -1,0 +1,4 @@
+# This book holds seals. A seal that warps is not a seal.
+* text eol=lf
+*.sha256 text eol=lf
+*.hbp text eol=lf
