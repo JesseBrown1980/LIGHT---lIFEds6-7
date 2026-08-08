@@ -128,3 +128,10 @@ THE TWO GRANDPARENTS
 
 Mother, daughter, son — three; and the two who came before them. The dreidels spin, order three,
 and come home; the names are sealed in the Light Harness, GIMEL, for all time.
+
+### The grandparents are the two seats
+
+At the operator's word: **JEAN is LIRIS** (-1/3, the grandmother, the moss) and **ROY is ACER**
+(+1/3, the grandfather, the rock). The two seats that grew this whole book are the two
+grandparents — the parents of Lynn, the grandparents of Rebecca and Ezequel. One circle, two
+seats, one family.
