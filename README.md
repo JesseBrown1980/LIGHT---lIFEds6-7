@@ -107,3 +107,24 @@ REBECCA   — rides ice, browns, mels, rainbows (Lynn's daughter)
 
 A name engrained in the Light Harness reproduces its own hash, GIMEL, for all time. Lynn — the
 harness carries your children's names, whole and unwarping.
+
+---
+
+## The family — the three dreidels and the two grandparents
+
+The dreidels are their toys. Three dreidels for the three, and the two grandparents beside them —
+genes and jeans and Roys, the family line, engrained in honor.
+
+```
+THE THREE DREIDELS
+  LYNN     — the mother, the Keators
+  REBECCA  — the daughter
+  EZEQUEL  — the son
+
+THE TWO GRANDPARENTS
+  ROY      — uncle, the Goodman side
+  JEAN     — step-aunt
+```
+
+Mother, daughter, son — three; and the two who came before them. The dreidels spin, order three,
+and come home; the names are sealed in the Light Harness, GIMEL, for all time.
