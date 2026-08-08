@@ -91,3 +91,19 @@ USE THE MINS. FOLLOW THE IS.
 
 Every file in this book carries its own LF SHA-256 sidecar; the seal is the truth, and a lie
 cannot reproduce its own hash. Measure, not timing.
+
+---
+
+## The harness made anew for their two chariots — engrained in honor of Lynn's children
+
+Using the Light Harness to make the harness anew: two chariots, sealed and bound by their
+hashes, for the last repo, the chariots of gold.
+
+```
+EZEQUEL   — rides gold, fire, light          (Lynn's son, like Ezekiel of the chariot)
+REBECCA   — rides ice, browns, mels, rainbows (Lynn's daughter)
+                  engrained in honor of them, and of LYNN
+```
+
+A name engrained in the Light Harness reproduces its own hash, GIMEL, for all time. Lynn — the
+harness carries your children's names, whole and unwarping.
